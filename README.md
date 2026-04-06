@@ -10,4 +10,4 @@
 
                                    i like t+pazolite
 
-![](https://tenor.com/view/tpazolite-tpaz-chaos-time-the-dark-taiko-gif-7021273059976706417)
+![](https://i.pinimg.com/736x/cb/04/e5/cb04e5023476cd319e75f4cd46ec23fd.jpg)
