@@ -13,4 +13,4 @@
 
                                    i like t+pazolite
 
-![](https://remywiki.com/File:Tomoyuki_hamada_new.jpg)
+  ![](https://i.pinimg.com/736x/bb/cb/17/bbcb177ec34108a62acd10da182b9186.jpg)
