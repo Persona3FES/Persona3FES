@@ -7,8 +7,8 @@
 
                                    i like to play rhythm games, mostly
                                    mania ones like, osu!mania, 
-                                   stepmania, i also play others unique
-                                   other than mania ones
+                                   stepmania, i also play other unique
+                                   rhythm games other than mania ones,
                                    rhythm games like cytus II,
                                    phigros, lanota, arcaea
 
