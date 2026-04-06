@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**Persona3FES/Persona3FES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+                                   ren      /       sun
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                                   he   /   him
+
+                                   ![italy}(https://tenor.com/view/hetalia-gif-17810649414244717102)
+
+                                   i like to play rhythm games, mostly mania ones like, osu!mania, stepmania, i also play others like cytus II,
+                                   phigros, lanota, arcaea
+
+                                   i like t+pazolite
+
+                                   ![](https://tenor.com/view/tpazolite-tpaz-chaos-time-the-dark-taiko-gif-7021273059976706417)
