@@ -13,6 +13,7 @@
                   rhythm games other than mania ones,
                         rhythm games like cytus II,
                 ★            phigros, lanota, arcaea and more
+                tho i do play standard osu if i feel like it
 
                                    i like t+pazolite
 
