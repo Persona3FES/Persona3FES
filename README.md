@@ -4,7 +4,9 @@
 *
                                    he   /   him
 ![italy](https://i.pinimg.com/736x/bd/a4/b3/bda4b37347fca6f89b80d88fbed59613.jpg)
-![](https://dividers.crd.co/assets/images/gallery08/7fdd9066.png?v=05d33f91)
+
+    ![](https://dividers.crd.co/assets/images/gallery08/7fdd9066.png?v=05d33f91)
+
                     i like to play rhythm games, mostly
                          mania ones like, osu!mania, 
                      stepmania, i also play other unique          ★
