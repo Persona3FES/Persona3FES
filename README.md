@@ -3,7 +3,7 @@
                               ★     ren      /       sun
 *
                                    he   /   him
-![italy](https://i.pinimg.com/736x/bd/a4/b3/bda4b37347fca6f89b80d88fbed59613.jpg)
+![italy](https://i.pinimg.com/736x/bd/a4/b3/bda4b37347fca6f89b80d88fbed59613.jpg)![](https://nothingooo.carrd.co/assets/images/image01.jpg?v=ebf3d81e)
 
 ![](https://dividers.crd.co/assets/images/gallery08/7fdd9066.png?v=05d33f91)![](https://dividers.crd.co/assets/images/gallery08/7fdd9066.png?v=05d33f91)
 
