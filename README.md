@@ -1,6 +1,6 @@
 
 
-                              ★     ren      /       sun
+                              ★     mono      /       oren
 *
                                    he   /   him
 
